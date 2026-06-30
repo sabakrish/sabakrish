@@ -167,9 +167,8 @@ I'm always interested in collaborating on:
 
 ## 📫 Connect with Me
 
-*💼 LinkedIn: https://www.linkedin.com/in/krish-sabapathy/)
-* 🌐 Portfolio: *(Add your portfolio website if available)*
-* 📧 Email: krishnasaba2018@gmail.com
+💼 LinkedIn: https://www.linkedin.com/in/krish-sabapathy
+📧 Email: krishnasaba2018@gmail.com
 
 ---
 
