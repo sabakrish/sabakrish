@@ -1,6 +1,6 @@
 # 👋 Hi, I'm Dr. Krish Sabapathy
 
-### IT Instructor | Cybersecurity Professional | Cloud & AI Educator | Data Science Enthusiast
+### Professor | Computer Science & Information Technology | Cybersecurity | Cloud Computing | AI & Data Science |
 
 📍 Toronto, Ontario, Canada
 
